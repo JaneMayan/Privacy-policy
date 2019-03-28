@@ -39,5 +39,5 @@ Search information -- you can access or clear your search history, view and modi
 Vi. How to update this privacy policy
 We may make adjustments or changes to this privacy policy in due course. Any updates to this privacy policy will be posted on our website in a time-stamped manner. Unless otherwise mandatory by laws, regulations or regulations, the adjusted or changed content will take effect 7 days after it is notified or published. If you continue to use any of our services or visit our relevant websites after the adjustment or change of your privacy policy, we believe that you have fully read, understood and accepted the revised privacy policy and are bound by it.
 How to contact us
-If you have any questions, comments or Suggestions regarding this privacy policy, please contact wl31bx@163.com
+If you have any questions, comments or Suggestions regarding this privacy policy, please contact zmyjane@163.com
 As a rule, we will reply within 30 days.
